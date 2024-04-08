@@ -1,11 +1,13 @@
 <p align="center">
-  <img width="360" height="203" src="https://i.imgur.com/9WZmeLx.gif">
+  <img src="https://static.wikia.nocookie.net/mkwikia/images/8/82/UMK3_Classic_Sub-Zero_Alt._Palette.gif/revision/latest?cb=20231123223848"width="72" height="129"/>
 </p>
-
 <p align="center">
-  joel / subzero
-  </p>
-  <p align="center">
-    <a href="https://rentry.co/BILLYLOOMlS">rentry</a> ♡ <a href="https://joel.straw.page/">strawpage</a>  
-
-
+<b>joel</b> / <b>subzero</b> 
+<br>
+he / any⠀⠀mexican⠀⠀autistic
+<br>
+<a href="https://rentry.co/BILLYLOOMlS">rentry</a> ⠀⠀ <a href="https://joel.123guestbook.com/">guestbook</a>  
+<br><br>
+</p>
+<p align="center">
+<img src="https://i.imgur.com/MSWiels.gif"width="101" height="57"/> <img src="https://i.imgur.com/Ai10ot4.gif"width="101" height="57"/> <img src="https://i.imgur.com/NLaoK15.png"width="101" height="57"/>
