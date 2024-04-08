@@ -6,6 +6,6 @@
   joel / subzero
   </p>
   <p align="center">
-    <a href="https://rentry.co/BILLYLOOMlS">rentry</a> ♡ <a href="https://joel.straw.page/">strawpage</a> ♡ <a href="https://joel.123guestbook.com/">guestbook</a> 
+    <a href="https://rentry.co/BILLYLOOMlS">rentry</a> ♡ <a href="https://joel.straw.page/">strawpage</a>  
 
 
