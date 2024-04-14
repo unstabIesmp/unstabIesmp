@@ -4,7 +4,7 @@
 <p align="center">
 <b>joel</b> / <b>subzero</b> 
 <br>
-she / any⠀⠀mexican⠀⠀autistic
+he / any⠀⠀mexican⠀⠀autistic
 <br>
 <a href="https://rentry.co/SUB-ZER0">rentry</a> ⠀ <a href="https://joel.123guestbook.com/">guestbook</a> ⠀ <a href="https://github.com/DELUXEB0MB">my boyfriend!!</a>
 <br><br>
