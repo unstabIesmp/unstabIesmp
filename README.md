@@ -11,7 +11,10 @@
 <br>
 <img src="https://i.imgur.com/qbVvb3i.gif"width="101" height="57"/> <img src="https://i.imgur.com/rBnEAVJ.gif"width="101" height="57"/> <img src="https://i.imgur.com/VP4MTEb.gif"width="101" height="57"/> <img src="https://i.imgur.com/gNw2aJA.gif"width="101" height="57"/>
 
-<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/c.php?d=9&id=172373&s=10' border='0' alt='Free Website Hit Counter'></a><br / ><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter">UNIQUE GITHUB VIEWS</a></small></div>
+<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/c.php?d=9&id=172374&s=7' border='0' </a><br / ><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter">UNIQUE GITHUB VIEWS</a></small></div>
+
+
+
 
 
 
