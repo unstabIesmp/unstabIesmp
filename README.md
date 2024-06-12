@@ -1,4 +1,4 @@
-<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/c.php?d=9&id=172374&s=7' border='0' </a><br / ><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter"
+<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/c.php?d=9&id=172375&s=7' border='0' alt='Free Website Hit Counter'>
 
 <p align="center">
 <img src="https://i.imgur.com/4UnXmV3.png" width="430px">
