@@ -6,7 +6,7 @@
 <br><a href="https://rentry.co/SUB-ZER0">RENTRY</a>⠀⠀<a href=https://joel.straw.page/>STRAWPAGE</a>
 <br> SHE/HE  AUTISTIC⠀⠀<a href="https://github.com/DELUXEB0MB">TAKEN!!!!</a>
 <br><br><b> <img src="https://i.imgur.com/s3IzILN.png" height="35px"> ⠀whisp to int Im usually playing another game :-P
-<br> im really Shy sorry if I Dont respong right away
+<br> im really Shy sorry if I Dont respond right away
   
 </p>
 <p align="center">
