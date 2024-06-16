@@ -10,7 +10,7 @@
 <b>basic interests</b> ꒱ mortal kombat and project moon
 <br> i have more but those 2 are the major ones!!!
 <br><br>
-<b>byi (?)</b> ꒱ im very shy and dont respond quickly
+<b>notes</b> ꒱ im very shy and dont respond quickly
 <br> im usually always offtab, whisper for a quicker response
 <br><br>
 <img src="https://i.imgur.com/6Qff3CG.png" width = "260px">
