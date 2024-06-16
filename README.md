@@ -1,8 +1,8 @@
 <p align="center">
 <img src="https://i.imgur.com/1uFxnb4.png" height = "421px">
-<br> joel / subzero
-<br> she he⠀⠀mexican⠀⠀taken
-<br> rentry   ⠀   ⠀⠀strawpage
+<br><b> joel / subzero</b>
+<br> she he⠀⠀mexican⠀⠀<a href="https://github.com/DELUXEB0MB">taken</a>
+<br> <a href="https://rentry.co/SUB-ZER0">rentry</a>   ⠀   ⠀⠀strawpage (wip..)
 <br><br>
 <img src="https://i.imgur.com/6Qff3CG.png" width = "260px">
 <br><br>
