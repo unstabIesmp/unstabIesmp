@@ -3,7 +3,7 @@
 <img src="https://i.imgur.com/1uFxnb4.png" height = "421px">
 <br><b> joel / subzero</b>
 <br> she he⠀⠀mexican⠀⠀<a href="https://github.com/DELUXEB0MB">taken</a>
-<br> <a href="https://rentry.co/mortaIkombat">rentry</a>   ⠀   ⠀⠀<a href="https://joel.straw.page/warning">strawpage</a> (wip..)
+<br> <a href="https://rentry.co/mortaIkombat">rentry</a>   ⠀   ⠀⠀<a href="https://joel.straw.page">strawpage</a> (wip..)
 <br><br>
 <img src="https://i.imgur.com/6Qff3CG.png" width = "260px">
 <br><br>
