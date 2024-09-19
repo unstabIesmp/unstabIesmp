@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.imgur.com/kQLz1ZY.png" width=890>
+<img src="https://i.imgur.com/kQLz1ZY.png" width=790>
 
 <h4 align="center"
   
@@ -9,9 +9,9 @@
 
 <p align="center">
 <img src="https://i.imgur.com/fbEXUsH.jpeg">
-<br><br> <b>joel</b> / myo
+<br><br> ✧ ꒱  <b>joel</b>⠀or⠀myo
 <br> she  he⠀⠀mexican⠀⠀autistic
-<br> the dropdowns have more info :-3
+<br> <a href="https://github.com/DELUXEB0MB">my boyfriend that i love</a>
 
 <p align="center">
-<img src="https://i.imgur.com/kQLz1ZY.png" width=890>
+<br> <img src="https://i.imgur.com/kQLz1ZY.png" width=790>
