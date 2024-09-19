@@ -11,7 +11,9 @@
 <img src="https://i.imgur.com/fbEXUsH.jpeg">
 <br><br> ✧ ꒱  <b>joel</b>⠀or⠀myo
 <br> she  he⠀⠀mexican⠀⠀autistic
-<br> <a href="https://github.com/DELUXEB0MB">my boyfriend that i love</a>
+<br> my  <a href="https://github.com/DELUXEB0MB">boyfriend</a> that i love
+<br><br>
+<a href="https://rentry.co/mortaIkombat"> rentry
 
 <p align="center">
 <br> <img src="https://i.imgur.com/kQLz1ZY.png" width=790>
