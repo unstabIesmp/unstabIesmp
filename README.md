@@ -14,6 +14,7 @@
 <br> my  <a href="https://github.com/DELUXEB0MB">boyfriend</a> that i love
 <br><br>
 <a href="https://rentry.co/mortaIkombat"> rentry
+<br> usually playing lobcorp or limbus
 
 <p align="center">
 <br> <img src="https://i.imgur.com/kQLz1ZY.png" width=790>
