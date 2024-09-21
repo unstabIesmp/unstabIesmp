@@ -13,7 +13,7 @@
 <br> she  he⠀⠀mexican⠀⠀autistic
 <br> my  <a href="https://github.com/DELUXEB0MB">boyfriend</a> that i love
 <br><br>
-<a href="https://rentry.co/mortaIkombat"> rentry
+<a href="https://rentry.co/mortaIkombat"> rentry</a>
 <br> usually playing lobcorp or limbus
 
 <p align="center">
