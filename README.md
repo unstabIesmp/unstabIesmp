@@ -20,10 +20,11 @@
 
 <details>
 <summary> ✧ quick byi</summary>
+<div align="center">
 <br>i am almost always offtab playing limbus or lobotomy corp , whisper me !!!
 <br> i dont usually respond to crowns in whispers.. but i do appreciate it !! thank you !
 <br> i am also incredibly shy and take awhile to think of a reply SORRY. i appreciate the patience :-)
-</details>
+</div></details>
 
 <p align="center">
 <br> <img src="https://i.imgur.com/kQLz1ZY.png" width=690>
