@@ -19,7 +19,7 @@
   
 
 <details>
-<summary> ✧ quick byi</summary>
+<summary> ✧ <sup>quick byi</sup></summary>
 <div align="center">
 <br>i am almost always offtab playing limbus or lobotomy corp , whisper me !!!
 <br> i dont usually respond to crowns in whispers.. but i do appreciate it !! thank you !
