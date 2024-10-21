@@ -8,11 +8,8 @@
 
 <p align="center">
 <img src='https://i.imgur.com/hbxEeTv.png'width="520px">
-<br> my  <a href="https://github.com/DELUXEB0MB">boyfriend</a> that i love
-<br>remaking all my stuff including this github :-3.
-<br> my name is joel nd i like project moon nd mortal kombat
-<br><br>
-<br> W290115269 
-
+<br><br> 𝐉𝐨el ◞  Myo
+<br> 𝐡e s𝐡e ⠀⠀𝐦exican⠀⠀autistic
+<br> tak𝐞n ♡ 08.13.23 ⠀ eng 𝐞sp sve
 <div align='center'> 
 <img src='https://i.imgur.com/cbYNmzf.png'>
