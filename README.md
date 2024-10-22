@@ -1,6 +1,8 @@
 <div align='center'> 
 <img src='https://i.imgur.com/s7W9qfl.png'>
 
+<img src='https://i.imgur.com/ui6noch.png'>⠀ <img src='https://i.imgur.com/QcUe7I3.gif'>⠀ <img src='https://i.imgur.com/8FHxa9K.gif'>⠀ <img src='https://i.imgur.com/vr8MRng.gif'>
+
 <h4 align="center"
 
 ![](https://komarev.com/ghpvc/?username=Iobotomy&color=4e3076&label=꒰+WUTHERING+EYES+ )
@@ -17,5 +19,4 @@
  <a href="https://rentry.co/mortaikombat">r𝐞ntry</a>
 <div align='center'> 
 <img src='https://i.imgur.com/cbYNmzf.png'>
-<br><br><br>
-<img src='https://i.imgur.com/ui6noch.png'>⠀  <img src='https://i.imgur.com/QcUe7I3.gif'>⠀  <img src='https://i.imgur.com/8FHxa9K.gif'>⠀  <img src='https://i.imgur.com/vr8MRng.gif'>
+<br><br>
