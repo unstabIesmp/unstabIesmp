@@ -14,7 +14,7 @@
 <br> 𝐡e s𝐡e ⠀⠀𝐦exican⠀⠀autistic
 <br> tak𝐞n ♡ 08.13.23 ⠀ eng 𝐞sp sve
 <br><br>
- <a href="https://rentry.co/mortaikombat">r𝐞ntry</a>
+ <a href="https://rentry.co/mortaikombat">r𝐞ntry</a> ⠀   <a href="https://myo.straw.page/">strawpag𝐞</a>
 <div align='center'> 
 <img src='https://i.imgur.com/cbYNmzf.png'>
 <br><br>
