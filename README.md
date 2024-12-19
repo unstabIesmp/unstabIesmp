@@ -4,7 +4,7 @@
 
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=Iobotomy&color=4e3076&label=꒰+WUTHERING+EYES+ )
+![](https://komarev.com/ghpvc/?username=Iobotomy&color=4e3076&label=꒰+CATHY'S+CLEARED+ )
 </h4>
 
 <p align="center">
