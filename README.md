@@ -10,7 +10,7 @@
 <p align="center">
 <img src='https://i.imgur.com/hbxEeTv.png'width="520px">
 <img src='https://i.imgur.com/cbYNmzf.png'> 
- <br> 𝐉𝐨el ◞  Erlking
+ <br> 𝐉𝐨el ◞  𝐗𝐨chitl
 <br> 𝐡e s𝐡e ⠀⠀𝐦exican⠀⠀autistic
 <br> tak𝐞n ♡ 08.13.23 ⠀ eng 𝐞sp sve
 <br><br>
