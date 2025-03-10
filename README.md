@@ -4,18 +4,10 @@
 
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=Iobotomy&color=4e3076&label=꒰+CATHY'S+CLEARED+ )
+![](https://komarev.com/ghpvc/?username=Iobotomy&color=4e3076&label=cathys+cleared )
 </h4>
 
 <p align="center">
-<img src='https://i.imgur.com/hbxEeTv.png'width="520px">
-<img src='https://i.imgur.com/cbYNmzf.png'> 
- <br> 𝐉𝐨el ◞  𝐗𝐨chitl
-<br> 𝐡e s𝐡e ⠀⠀𝐦exican⠀⠀autistic
-<br> tak𝐞n ♡ 08.13.23 ⠀ eng 𝐞sp sve
-<br><br>
- <a href="https://rentry.co/mortaikombat">r𝐞ntry</a> ⠀   <a href="https://myo.straw.page/">strawpag𝐞</a>
-<div align='center'> 
-<img src='https://i.imgur.com/cbYNmzf.png'>
-<br><br>
-
+hi im joel or xochitl
+<br><a href="https://rentry.co/mortaikombat">rentry</a> ⠀   <a href="https://myo.straw.page/">strawpage</a>
+<br> Ill Make this soo Pretty Later
