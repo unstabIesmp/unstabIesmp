@@ -10,4 +10,4 @@
 <p align="center">
 hi im joel or xochitl
 <br><a href="https://rentry.co/mortaikombat">rentry</a> ⠀   <a href="https://myo.straw.page/">strawpage</a>
-<br> Ill Make this soo Pretty Later
+<br> dni if youre jobless
