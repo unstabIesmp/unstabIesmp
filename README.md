@@ -9,7 +9,7 @@
 
 ![](https://komarev.com/ghpvc/?username=Iobotomy&color=b29c9f&label=cathys+cleared )
 </h4>
-<br><b>joel</b> ◞  erlking
+<br><b>joel</b> ◞  xochitl
 <br><a href="https://rentry.co/mortaikombat">rentry</a> ⠀     <a href="https://myo.straw.page/">strawpage</a>
 <br> my ⠀⠀ <a href="https://github.com/DELUXEB0MB">boyfriend ♡</a>
 
